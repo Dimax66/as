@@ -1,5 +1,6 @@
 # 📷 SONY CYBER-SHOT DSC-W830  
 ## Kombinasi Setting Foto Terbaik untuk Hasil Jernih & Estetik  
+© 2025 Dimas Maisandi. All rights reserved.
 
 ---
 
